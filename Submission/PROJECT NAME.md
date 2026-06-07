@@ -6,7 +6,7 @@
 
 **GitHub Username:**  3iyam8ings
 
-**Team Name:**  Codeithon
+**Team Name:**  GOPANDAZ
 
 **College/University:**  DIT University
 
